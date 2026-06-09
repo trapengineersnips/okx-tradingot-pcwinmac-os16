@@ -1,4 +1,4 @@
-# 
+# Instantané okx trading bot modèles pour Mac OS | Intelligent okx trading bot modèles pour PC Windows. Avec exécution d'ordres au marché et mise en cache des données — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
